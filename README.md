@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @YVESugira
+- 👀 I’m interested in technology contents
+- 🌱 I’m currently learning in Information and communications technology at Integrated Polytechnic Regional College Tumba
+- 💞️ I’m looking to collaborate on honestly tech events
+- 📫 How to reach me is just you can call me on +250782399163
+- or text me on instagram niyvesugira
+- thanks look forward to hear from everyone.
+-
